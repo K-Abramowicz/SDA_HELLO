@@ -2,3 +2,4 @@
 osisdffhiosdhfos
 NA GITHUB
 do lokalnego
+do lokalnego2
